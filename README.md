@@ -2,7 +2,7 @@
 -  I’m In Love with my Money √
 -  I’m LEANIN I’m LEANINN
 
-     • ∆LL S¢R3W3D UP •
+     • ALL SCREWED UP •
 
      lawless@chefmail.de
 
