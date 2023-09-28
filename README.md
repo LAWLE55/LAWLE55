@@ -1,10 +1,10 @@
 -  I’m @LAWLE55
 -  I’m In Love with my Money √
--  I’m LEANIN I’m LEANINN
+-  I’m LEANINN I’m LEANINNN !
 
-     • ALL SCREWED UP •
-
-     lawless@chefmail.de
+       ∆LL SCREWED UP 
+  
+      lawless@chefmail.de
 
 <!---
 LAWLE55/LAWLE55 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
